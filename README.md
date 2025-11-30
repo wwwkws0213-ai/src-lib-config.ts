@@ -1,2 +1,2 @@
-# src-lib-config.ts
-Suenkawo 
+cvhjcbgdgbdgkkv.  du dfjv y jdx acsvzdh
+tdfbzifh
